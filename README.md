@@ -1,3 +1,3 @@
 # infinitycris
 
-tudo sobre minhas aulas na escola na infinity school 
+tudo sobre minhas aulas na escola infinity school 
